@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **kite803601@gmail.com**
 
--📄 Know about my experiences **https://www.cakeresume.com/s--Eq783vGBNBDMHrp0jqZdyw--/kite276**  
+- 📄 Know about my experiences **https://www.cakeresume.com/s--Eq783vGBNBDMHrp0jqZdyw--/kite276**  
 
 
 <p align="left">
